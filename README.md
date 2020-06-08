@@ -1,2 +1,0 @@
-# gmail-
-gmail nya ya 
